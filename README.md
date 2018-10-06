@@ -1,0 +1,2 @@
+# vefforritun_verkefni6
+Vefforritun2018 Verkefni6
